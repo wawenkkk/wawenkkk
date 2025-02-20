@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @wawenkkk
-- 👀 I’m interested in digital
+- 👀 I’m interested in world digital
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on google.com
-- 📫 How to reach me 
-- 😄 Pronouns: 
+- 📫 How to reach me : DM Instagram @aweenkk_
+- 😄 Pronouns: AWENK
 - ⚡ Fun fact: i like naspad.
 
 <!---
